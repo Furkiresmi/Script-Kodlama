@@ -1,1 +1,1 @@
-# Script-Kodlama
+Merhaba Dostum.!
